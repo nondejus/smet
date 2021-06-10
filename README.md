@@ -1,2 +1,0 @@
-# smet
-Smet is een beladen woord. Een smet is meer dan een vlek. Smet is een metafoor, een uitspraak over angst en vooroordelen. Smet is een pijnlijk woord dat verwijst naar generalisatie, naar uitsluiting en discriminatie
